@@ -1,1 +1,1 @@
-N
+GO TO SLEEP
